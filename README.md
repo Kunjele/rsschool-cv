@@ -1,1 +1,1 @@
-# rsschool-cv
+https://kunjele.github.io/Kunjele/
